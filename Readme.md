@@ -1,1 +1,1 @@
-This site will be a totally educational site 
+This site will be prob be a movie/game site 4 school
